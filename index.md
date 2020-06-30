@@ -7,3 +7,8 @@ Data is immune to nearly all biological diseases and other weaknesses that can a
 * cybernetic organism
 * very strong
 * no bioligical diseases
+
+## Quote of Data
+
+> In every way of course. I am programmed in multiple techiques.
+> A broad variety of pleasuring.
