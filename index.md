@@ -12,3 +12,5 @@ Data is immune to nearly all biological diseases and other weaknesses that can a
 
 > In every way of course. I am programmed in multiple techiques.
 > A broad variety of pleasuring.
+
+<img src="https://upload.wikimedia.org/wikipedia/en/0/09/DataTNG.jpg"/>
